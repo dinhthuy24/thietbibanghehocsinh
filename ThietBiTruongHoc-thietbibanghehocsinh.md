@@ -23,3 +23,4 @@
 ## 6. Bàn ghế gỗ thông cao cấp
 - Mô tả: Làm từ gỗ thông tự nhiên, độ bền và thẩm mỹ cao.
 - [Xem chi tiết](https://thietbibanghehocsinh.com/san-pham/ban-ghe-go-thong-cao-cap/)
+- **Website:** [Thiết bị bàn ghế học sinh tại Buôn Ma Thuột, Đắk Lắk](https://thietbibanghehocsinh.com/)
